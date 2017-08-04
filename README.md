@@ -8,4 +8,4 @@ Video's
 ----------------------
 https://www.youtube.com/watch?v=PFP0oXNNveg
 https://www.youtube.com/watch?v=uONz0lEWft0&list=PLillGF-RfqbZMNtaOXJQiDebNXjVapWPZ
-Pauze @ 17:53
+Pauze @ 17:54
